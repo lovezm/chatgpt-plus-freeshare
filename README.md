@@ -28,10 +28,5 @@ https://github.com/fuergaosi233/wechat-chatgpt/blob/main/README_ZH.md
 https://github.com/PlexPt/awesome-chatgpt-prompts-zh
 
 
-- 国内镜像，套壳的：
-
-https://chat.forchange.cn/
-
-https://so.csdn.net/so/chat
 
 - 请自备梯子。
