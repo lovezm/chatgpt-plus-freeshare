@@ -8,7 +8,7 @@ chatgpt plus账号免费分享
 - 如果您觉得PLUS服务好用，可以联系我（wh_063代充PLUS 价格￥150），也可在群内直接联系我（裙主
 
 - gpt0650@9yo.cc  密码 5WNQDyoYE2 
-
+- 如遇高峰期 暂不提供带token的登录地址。
 
 ![image](https://user-images.githubusercontent.com/10624938/222057805-076c330a-663f-4fbf-bd91-e19fc1593655.png)
 
