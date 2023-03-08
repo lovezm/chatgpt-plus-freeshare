@@ -11,8 +11,8 @@ chatgpt plus账号免费分享
 - gpt0650@9yo.cc  密码 5WNQDyoYE2 
 - 如遇高峰期 暂不提供带token的登录地址。
 - 我们有足够量的免费会员 但是每次只会放出一个，如果封号，我们会提供新的共享账号，前提是我们的收入大于支出。
-- 群已经接入了PLUS对话接口，欢迎进群体验
-![image](https://user-images.githubusercontent.com/10624938/222057805-076c330a-663f-4fbf-bd91-e19fc1593655.png)
+![fda90b860b5b6554825d77cee683dbd](https://user-images.githubusercontent.com/10624938/223598442-ff579f97-8cd3-4bfe-8f7c-421179a0895d.jpg)
+
 
 # 相关git：
 - java代码调用：
