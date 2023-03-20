@@ -2,6 +2,7 @@
 chatgpt plus账号免费分享
 
 ## Welcome to chatgpt-plus-share 👋
+- https://tg.233.re/ midjourney $60 Pro套餐共享号 66一位
 - 可用的可以点个Star 免费分享、
 - 为保障隐私、聊天后清删除对话。
 - GPT4、GPT3.5、AI、免费PLUS、chatgpt账号
