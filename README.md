@@ -9,7 +9,8 @@ chatgpt plus账号免费分享
 - 如果您觉得PLUS服务好用，可以联系我微信（ wh_063 代充PLUS 价格￥150 拼车 ￥50 3人共享），也可在群内直接联系我（裙主
 - 且提供各类AI工具订阅服务代开、包括但不限于Playground AI、midjourney、chagptplus、copilot、caktusai、breakoutclips、docsbot.ai、beautiful.ai各类海外学术工具、AI代充如果你有需要海外信用卡的 都可以联系我来代充、正规途径开通、均比官方便宜。
 
-- gpt0650@9yo.cc  密码 5WNQDyoYE2 
+- gpt0650@9yo.cc  密码 5WNQDyoYE2 （可能已经封号）
+- gpt72156@9yo.cc 密码abc123456
 - 如遇高峰期 暂不提供带token的登录地址。
 - 我们有足够量的免费会员 但是每次只会放出一个，如果封号，我们会提供新的共享账号，前提是我们的收入大于支出。
 -  群聊超过200人需要邀请加入的 请加我微信 发送入群 我拉你
