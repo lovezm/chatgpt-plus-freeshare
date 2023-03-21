@@ -14,6 +14,10 @@ chatgpt plus账号免费分享
 - gpt72156@9yo.cc 密码abc123456
 - 如遇高峰期 暂不提供带token的登录地址。
 - 我们有足够量的免费会员 但是每次只会放出一个，如果封号，我们会提供新的共享账号，前提是我们的收入大于支出。
+- 二群
+![2a85f27996fff141ff3e7a5fc09d94d](https://user-images.githubusercontent.com/10624938/226529969-317faa9e-1660-48e7-beaa-3e2dd85eff1f.jpg)
+
+
 -  群聊超过200人需要邀请加入的 请加我微信 发送入群 我拉你
 ![eb66aa71611b7bc3d4a2bc6fb83df38](https://user-images.githubusercontent.com/10624938/225469370-cc6f4084-a03c-4484-b6e8-2b4908651381.jpg)
 
