@@ -19,7 +19,8 @@ chatgpt plus账号免费分享
 
 
 -  群聊超过200人需要邀请加入的 请加我微信 发送入群 我拉你
-![eb66aa71611b7bc3d4a2bc6fb83df38](https://user-images.githubusercontent.com/10624938/225469370-cc6f4084-a03c-4484-b6e8-2b4908651381.jpg)
+![c6e35db0370face10eb26ae84b5aea7](https://user-images.githubusercontent.com/10624938/229561071-dafb434b-b446-4709-b240-67448d83b60b.jpg)
+
 
 
 
