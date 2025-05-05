@@ -18,6 +18,8 @@ chatgpt plus账号免费分享
 -  群聊超过200人需要邀请加入的 请加我微信 发送入群 我拉你
 ![c6e35db0370face10eb26ae84b5aea7](https://user-images.githubusercontent.com/10624938/229561071-dafb434b-b446-4709-b240-67448d83b60b.jpg)
 
+我们现在已经不提供 PLUS 会员 但是可以代开通，我自己做了一套系统自助开通无需账号密码 无需信用卡 支付链接 全程自己操作 只需要一个兑换码  有需要找我 联系我微信 一般没回是在睡觉
+<img width="955" alt="image" src="https://github.com/user-attachments/assets/d85482e2-9ae7-4262-a548-e399e3f7e772" />
 
 
 
